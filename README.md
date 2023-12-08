@@ -1,0 +1,1 @@
+This website is the maintenance landing page of Ulrich Razafison Photography.
